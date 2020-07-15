@@ -1,2 +1,2 @@
-# krisbad.ga
-test
+# kris
+https://krisbad.ga/ haha
